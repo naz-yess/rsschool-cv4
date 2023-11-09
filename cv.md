@@ -8,6 +8,9 @@
 - **Phone number:** 87762856656
 - **Telegram:** @naz_yess
 
+## **Education**
+  **Suleyman Demirel University** 
+ -  **Bachelor of Two Foreign Languages**    *2021-2025* 
 
 
 ## **Experience**
