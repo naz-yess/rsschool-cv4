@@ -1,2 +1,2 @@
 # rsschool-cv
-## https://Nazerke2004.github.io/rsschool-cv/cv
+## https://Nazerke2004.github.io/rsschool-cv/index.html
