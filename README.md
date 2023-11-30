@@ -1,1 +1,1 @@
-# rsschool-cv
+ https://naz-yess.github.io/rsschool-cv1/
